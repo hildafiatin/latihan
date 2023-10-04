@@ -1,1 +1,1 @@
-anu lah 22
+anu lah
