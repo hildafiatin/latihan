@@ -1,1 +1,1 @@
-anu lah
+PERCOBAAN 1
